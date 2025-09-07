@@ -1,0 +1,1 @@
+# ISOIEC-27001-Information-Security-Associate-Notes
